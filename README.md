@@ -17,3 +17,7 @@ My name is **Isabelle Bush** I am a final year science student studying Statisti
    1. Katherine Johnson
    2. Florence Nightingale
    3. Jean Miller Heywood
+
+
+When I am not studying or working you can find me running, knitting, sewing or reading. Some of my latests projects include:
+
